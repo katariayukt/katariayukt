@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **k.yukt.07@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1Xt3RlsJ7_Yy6CouPMr5YRym3rDvADDKCer1YJ2cXbx0/edit#heading=h.ca0awj8022e2](https://docs.google.com/document/d/1Xt3RlsJ7_Yy6CouPMr5YRym3rDvADDKCer1YJ2cXbx0/edit#heading=h.ca0awj8022e2)
+- 📄 Know about my experiences [Resume'](https://drive.google.com/file/d/1VEjKfUsGfxBIURe8dmr13GvDiPVApoxY/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
